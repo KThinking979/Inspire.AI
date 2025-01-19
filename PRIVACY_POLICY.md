@@ -58,4 +58,4 @@ Here's more information about our privacy practices.
 
 If you have any questions regarding how the app protects your privacy, feel free to email me and I will definitely try to fix/help you.
 
-phamkiem.dev@icloud.com or kaipham279@gmail - KThinking
+KThinking.app.@gmail.com - KThinking
